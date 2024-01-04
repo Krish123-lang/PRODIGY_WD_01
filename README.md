@@ -1,1 +1,1 @@
-![Screenshot (97)](https://github.com/Krish123-lang/PRODIGY_WD_01/assets/56486342/a6285c59-f652-42b3-9c28-5167618503f9)
+![Screenshot 2024-01-04 213217](https://github.com/Krish123-lang/PRODIGY_WD_01/assets/56486342/d73875db-1c2d-4d8e-aac8-12d08df3e5b3)
